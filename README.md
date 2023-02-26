@@ -1,0 +1,3 @@
+```
+Most Of These Snippets Are Not Made By Me So Credit Goes To All Those Who Created These...........
+```
